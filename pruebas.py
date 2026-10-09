@@ -1,3 +1,3 @@
 
-"perdon nafi no" aaaahhhhhahahahahah
+"perdon nafi no" 
 
